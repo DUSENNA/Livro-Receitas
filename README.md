@@ -1,2 +1,7 @@
-# lIVRO DE rECEITAS
+# LIVRO DE RECEITAS
 
+## * #### Strogonoff
+
+*  ##### Pavê
+
+  
