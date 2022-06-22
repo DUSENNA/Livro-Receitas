@@ -1,7 +1,7 @@
 # LIVRO DE RECEITAS
 
-## * #### Strogonoff
+* ##### Strogonoff
 
-*  ##### Pavê ou Comer rsrs
+*  ##### Pavê 
 
   
