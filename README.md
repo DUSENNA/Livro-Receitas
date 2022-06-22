@@ -2,6 +2,6 @@
 
 ## * #### Strogonoff
 
-*  ##### Pavê
+*  ##### Pavê ou Comer rsrs
 
   
